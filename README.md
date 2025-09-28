@@ -1,2 +1,2 @@
 # NMA
-Let's discuss the next model of America!
+Let's imagine the next model of America!
